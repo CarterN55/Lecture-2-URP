@@ -1,6 +1,6 @@
-# Lecture 2 URP
+# Lecture 2
 
 
 
-I don't know what to put here but here is some text for the file :)
+https://imgur.com/a/yquVVMm - Green, Red, and Blue
 
